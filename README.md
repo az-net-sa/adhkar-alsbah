@@ -1,3 +1,3 @@
 # adhkar-alsbah
 
-[Check](https://twitter.com/adhkar_alsbah)
+[Check the Twitter account](https://twitter.com/adhkar_alsbah)
